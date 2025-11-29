@@ -39,7 +39,7 @@ I regularly **attend conferences and seminars** on digital marketing, entreprene
 
 ## 📫 Connect With Me  
 🌐 **Portfolio:** _coming soon_  
-💼 **Insagram:** @dusan_vereb
+💼 **Insagram:** @dusan_vereb  
 📧 **Discord:** dusika_
 
 ---
